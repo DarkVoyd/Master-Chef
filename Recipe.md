@@ -6,3 +6,5 @@ Add milk, vegetable oil, eggs, and vanilla to flour mixture and mix together on 
 Distribute cake batter evenly between the two prepared cake pans. Bake for 30-35 minutes, until a toothpick or cake tester inserted in the center of the chocolate cake comes out clean.
 Remove from the oven and allow to cool for about 10 minutes, remove from the pan and cool completely.
 Frost cake with Chocolate Buttercream Frosting.
+
+by Puneet Sharma
